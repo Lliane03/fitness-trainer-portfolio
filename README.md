@@ -16,6 +16,8 @@ You can access the live version of the portfolio at the following link: (https:/
 Feel free to explore the project, contribute, and make it even better. 
 
 Follow his accounts:
-Tiktok (https://www.tiktok.com/@mr.simpatiko05?)
+Tiktok (https://www.tiktok.com/@mr.simpatiko05)
+
 YouTube (https://www.youtube.com/channel/UCzInP_tghu87xMf3F8WRm1g)
+
 Facebook (https://www.facebook.com/marcony.concha)
